@@ -1,2 +1,2 @@
-# s-shiva
+# s-techshiva
 Free earning
